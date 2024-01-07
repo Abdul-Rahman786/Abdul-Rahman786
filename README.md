@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abdul-Rahman786
 - 👀 I’m interested in Data Science
-- 🌱 I’m currently learning BS(IT) 3rd 
+- 🌱 I’m currently learning BS(IT) 3rd Semester
 - 💞️ I’m looking to collaborate for any IT Tech Company 
 - 📫 How to reach me abdulrahman787878787878787878@gmail.com
 
